@@ -2,7 +2,6 @@
 
 **Reborn Games** is a creative studio dedicated to building immersive roleplay (RP) gamemodes across multiple platforms, including 🌍 **Nanos World**.
 
----
 
 ## 🧠 What We Do
 
