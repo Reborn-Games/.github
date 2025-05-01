@@ -12,20 +12,17 @@ We specialize in crafting:
 - 🎭 Engaging roleplay experiences  
 - 🤝 Community-driven features  
 
----
 
 ## 🚀 Our Mission
 
 To push the boundaries of sandbox RP gaming by combining storytelling, gameplay mechanics, and creative freedom. Whether you're a player or a developer, we aim to deliver unforgettable multiplayer experiences.
 
----
 
 ## 📡 Platforms
 
 - Nanos World  
 - More coming soon...
 
----
 
 ## 👥 Join Us
 
