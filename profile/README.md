@@ -25,4 +25,4 @@ To push the boundaries of sandbox RP gaming by combining storytelling, gameplay 
 
 ## 👥 Join Us
 
-We're always evolving and expanding. Follow our projects, contribute, or just enjoy the ride — we're glad to have you with us on this journey to reshape the future of roleplay, one world at a time!
+We're always evolving and expanding. Follow our projects, contribute, or just enjoy the ride, we're glad to have you with us on this journey to reshape the future of roleplay, one world at a time!
